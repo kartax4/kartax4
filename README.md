@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on project Yes project i want tasks give me tasks ;)
 - 📫 How to reach me by reaching
 - be happy
-- =! sad
+- != sad
 - good englado-polishando
 
 <!---
