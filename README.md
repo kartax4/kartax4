@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @kartax4
 - 👀 I’m interested in girls
 - 🌱 I’m currently learning school things uhh
-- 💞️ I’m looking to collaborate on project Yes project i want tasks give me tasks ;)
 - 📫 How to reach me by reaching
 - be happy
 - != sad
